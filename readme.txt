@@ -1,3 +1,0 @@
-HALLLOI
-sss
-tujzfjurzukj
